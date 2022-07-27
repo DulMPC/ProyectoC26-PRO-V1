@@ -1,0 +1,6 @@
+Engrasamos un molde de bizcocho, he elegido tal como veis en la foto uno de cake. Un molde desmontable rectangular tipo cake (en este caso silicona) de 24,1 cm x 14,2 x 7,6 cm pero podéis emplear el que más os guste. También valen los moldes circulares.
+Untamos con mantequilla y espolvoreamos con un poco de harina. Introducimos en un bol los plátanos (que estén muy maduros), el azúcar y la leche.
+Machacamos con un tenedor hasta que quede un puré ligero pero en el que se noten los trozos de plátano. Este puré es el que le va a dar al pan ese toque delicioso, con un ligero dulzor pero no demasiado.
+Vertemos la mezcla en el molde de cake e introducimos las nueces picadas. La combinación nueces-plátano es insuperable, aunque también podéis emplear otros frutos secos que tengáis a mano. Todo depende de vuestra creatividad.
+Horneamos el bizcocho en el horno precalentado a 180º C unos 40-45 minutos. Tal como comenté en alguna otra receta, todo depende del horno, siempre mirad con un tenedor que se quede seco.
+Los últimos 10 minutos tapad el pan con un trozo de papel de aluminio. Así conseguiremos que no se os quede muy tostado. Sacamos del horno y dejamos enfriar. Desmoldamos con cuidado y a probarlo.

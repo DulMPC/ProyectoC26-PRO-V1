@@ -1,0 +1,1 @@
+El pan de banana es un tipo de pan elaborado con la pulpa del fruto de la platanera y leudado por regla general con levadura química. No obstante hay recetas que se elaboran con levaduras, tal y como se hacen con los panes tradicionales
